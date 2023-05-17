@@ -1,0 +1,2 @@
+# Memoli
+Teşekkürler 
